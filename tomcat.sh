@@ -1,0 +1,1 @@
+I am Ayushi Pandey, a passionate Electronics and Communication Engineering student with strong skills in programming and DevOps. I enjoy building projects, learning new technologies, and solving real-world problems. With internship experience in frontend development and HR, I combine technical knowledge with excellent communication and teamwork abilities.
